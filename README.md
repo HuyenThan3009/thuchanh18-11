@@ -1,2 +1,3 @@
 # th18_11
-![ketqua](https://github.com/HuyenThan3009/thuchanh18-11/assets/132210915/63f63c89-79d2-43f0-8a37-3d9383e07db6)
+<img width="935" alt="image" src="https://github.com/HuyenThan3009/thuchanh18-11/assets/132210915/3c4887cf-0cfa-4278-a115-c267f4ac8dfe">
+
